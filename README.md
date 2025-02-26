@@ -1,4 +1,4 @@
-#👋 Hi, I’m Ana Santana#
+*👋 Hi, I’m Ana Santana*
 
 👀 About Me
 I am a curious and adventurous person who loves to learn new things and explore new places. Traveling, marketing, and creativity are my biggest passions, and I’m always looking for opportunities to grow in these areas.
