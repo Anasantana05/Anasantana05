@@ -25,7 +25,7 @@ I’d love to connect with passionate marketers who are interested in creative s
 
 📫 How to Reach Me
 	•	Email: ana.santana@est.uexternado.edu.co
-	•	LinkedIn: linkedin.com/in/ana-santana (o el enlace que tengas)
+	•	LinkedIn: 
 
 ⚡ Fun Fact
 I have two cats, Teo and Simón! I also love airplanes, cars, nature, and photography—especially capturing the beauty of the places I visit.
